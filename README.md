@@ -1,7 +1,7 @@
 # Right Way to Improve Your Problem-Solving Skills and Improve Your DSA Skills 🔥
 
 
-🚀 Exciting news! I've dedicated 1.5 years to DSA, guiding and mentoring thousands of students! Also, "Ha Wo Baat Alg Hai Uski Post Nahi Dali Btaya Nhe 👀" During this thrilling journey, I've connected with brilliant minds in the tech field, learning from their experiences and knowledge. 🌟
+🚀 Exciting news! I've dedicated 1.5 years to DSA, guiding and mentoring thousands of students! Also Professionals, "Ha Wo Baat Alg Hai Uski Post Nahi Dali Btaya Nhe 👀" During this thrilling journey, I've connected with brilliant minds in the tech field, learning from their experiences and knowledge. 🌟🧠🌐
 
 I've also engaged with International Programmers who are really "Food rahi hai wo" 🌎 and learned valuable insights into their problem-solving approaches and strategies. 🚀
 
